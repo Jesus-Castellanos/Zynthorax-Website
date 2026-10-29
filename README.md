@@ -1,0 +1,2 @@
+# Zynthorax-Website
+Criptomoneda
